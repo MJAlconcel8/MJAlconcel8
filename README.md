@@ -7,6 +7,6 @@
 - 💸 Here's a photo of my GitHub contributions during my tenure @ Dayforce (Sep. 2024 - Apr. 2025) (Company-owned GitHub Account :P)
 ![Screenshot 2025-04-18 132724](https://github.com/user-attachments/assets/a6e12196-c601-40cb-88c0-82adeacd3ec5)
 - Check out my contributions from my second run at Dayforce! :)
-<img width="1911" height="780" alt="Screenshot 2026-04-07 153420" src="https://github.com/user-attachments/assets/4ce0e5ea-a098-4e7c-9b35-f38e9b217082" />
+![Screenshot 2025-04-18 132724](https://github.com/user-attachments/assets/4ce0e5ea-a098-4e7c-9b35-f38e9b217082)
 
 
